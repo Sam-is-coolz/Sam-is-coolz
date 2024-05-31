@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sam-is-coolz
+- I play ponytown alot ,W2I
+- Pronouns are She/Her
+- 
