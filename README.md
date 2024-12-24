@@ -1,4 +1,7 @@
 - 👋 Hi, I’m @Sam-is-coolz
 - I play ponytown alot ,W2I
 - Pronouns are She/Her
-- 
+- Fandoms im in (pls int!!) ; The Object show community, Toilet Bound Hanako Kun, The amazing Digital Circus, Vocaloid, & more!!! 
+- Basic DNI criteria
+- a reallly dry text/ect talking to me is like talking to a brick wall
+- and uhh thats all :]
